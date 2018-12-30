@@ -1,4 +1,4 @@
-## 音読をしよう(Read-Aloud) Privacy Policy
+## 音読をしよう Privacy Policy
 
 Yoshiki Tanaka built the 音読をしよう app as a Free app. This SERVICE is provided by Yoshiki Tanaka at no cost and is intended for use as is.
 
